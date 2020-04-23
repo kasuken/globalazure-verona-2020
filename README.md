@@ -1,0 +1,1 @@
+# globalazure-verona-2020
